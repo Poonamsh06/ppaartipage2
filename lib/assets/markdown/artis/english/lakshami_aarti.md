@@ -1,6 +1,6 @@
   ![The San Juan Mountains are beautiful!](lib/assets/images/artis/img.png "San Juan Mountains")
 
-#                           ॥ Aarti Shri Lakshmi Ji ॥
+#      ॥ Aarti Shri Lakshmi Ji ॥
 
                             Om Jai Lakshmi Mata,Maiya Jai Lakshmi Mata।
 

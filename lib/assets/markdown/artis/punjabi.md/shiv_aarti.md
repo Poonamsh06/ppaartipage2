@@ -1,74 +1,73 @@
+# ॥ ਸ਼ਿਵ ਜੀ ਕੀ ਆਰਤੀ।
 
-॥ Shiv Ji ki Aarti ॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ, ਸਵਾਮੀ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara,Swami Jai Shiv Omkara।
+ਬ੍ਰਹਮਾ, ਵਿਸ਼ਨੂੰ, ਸਦਾਸ਼ਿਵ, ਅਰਧਾਂਗੀ ਧਾਰਾ।
 
-Brahma, Vishnu, Sadashiv,Ardhangi Dhara॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਏਕਾਨਨ ਚਤੁਰਾਨਨ ਪੰਚਾਨਨ ਰਾਜੇ ॥
 
-Ekanan ChaturananPanchanan Raje।
+ਹੰਸਾਨਨ, ਗਰੁਡਾਸਨਵਰ੍ਸ਼ਵਾਹਨ ਸਾਜੇ ॥
 
-Hansanan, GarudasanVrishvahan Saje॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਕਰੋ ਭੁਜ, ਚਾਰ ਚਤੁਰਭੁਜਦਸ਼ਭੁਜ ਅਤਿ ਸੋਹੇ।
 
-Do Bhuj, Chaar ChaturbhujDashabhuj Ati Sohe।
+ਤ੍ਰਿਗੁਣ ​​ਰੂਪ ਨਿਰਖਤੇ ਤ੍ਰਿਭੁਵਨ ਜਨ ਮੋਹੇ ॥
 
-Trigun Roop NirakhateTribhuvan Jan Mohe॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਅਕਸ਼ਮਲਾ ਵਨਮਾਲਾ ਮੁੰਡਮਾਲਾ ਧਾਰੀ।
 
-Akshamala VanamalaMundamala Dhari।
+ਤ੍ਰਿਪੁਰਾਰਿ ਕੰਸਾਰੀਕਰ ਮਾਲਾ ਧਾਰੀ ॥
 
-Tripurari KansariKar Mala Dhari॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਸ਼ਵੇਤਾਂਬਰ ਪੀਤਾੰਬਰ ਬਾਘੰਬਰ ਅੰਗੇ।
 
-Shvetambar PitambarBaaghambar Ange।
+ਸਨਕਾਦਿਕ ਗਰੁਣਾਦਿਕ ਭੂਤਾਦਿਕ ਸੰਗੇ ​​॥
 
-Sankadik GarunadikBhootadik Sange॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਕਰ ਕੇ ਮੱਧ ਕਮੰਡਲੁ ਚੱਕਰ ਤ੍ਰਿਸ਼ੂਲਧਾਰੀ।
 
-Kar Ke Madhya KamandaluChakra Trishuldhari।
+ਸੁਖਕਾਰੀ ਦੁਖਹਾਰੀਜਗਪਾਲਨ ਕਰਿ ॥
 
-Sukhakari DukhahariJagpalan Kari॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਬ੍ਰਹਮਾ ਵਿਸ਼ਨੂੰ ਸਦਾਸ਼ਿਵਜਨਤ ਅਵਿਵੇਕਾ।
 
-Brahma Vishnu SadashivJanat Aviveka।
+ਮਧੁ-ਕੈਤਭ ਦੋਊ ਮਾਰੇ, ਸੁਰ ਭਈਂ ਕਰੇ ॥
 
-Madhu-Kaitabh Dou Mare,Sur Bhayheen Kare॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਲਕਸ਼ਮੀ ਵਾ ਸਾਵਿਤਰੀ ਪਾਰਵਤੀ ਸੰਗ।
 
-Lakshmi Va SavitriParvati Sanga।
+ਪਾਰਵਤੀ ਅਰਧਾਂਗੀ, ਸ਼ਿਵਲਹਾਰੀ ਗੰਗਾ।
 
-Parvati Ardhangi,Shivalahari Ganga॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਪਰਵਤ ਸੌਹੇਂ ਪਾਰਵਤੀ, ਸ਼ੰਕਰ ਕੈਲਾਸਾ।
 
-Parvat Sauhen Parvati,Shankar Kailasa।
+ਭੰਗ ਧਤੂਰ ਕਾ ​​ਭੋਜਨ, ਭਸ੍ਮਿ ਮੇ ਵਾਸਾ ॥
 
-Bhaang Dhatoor Ka Bhojan,Bhasmi Me vaasa॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਜਟਾ ਮੈਂ ਗੰਗਾ ਬਹਿਤ ਹੈ, ਗਲ ਮੁੰਡਨ ਮਾਲਾ।
 
-Jataa Me Ganga Bahat Hai,Gal Mundan Mala।
+ਸ਼ੇਸ਼ ਨਾਗ ਲਿਪਟਾਵਤ, ਓਦਤ ਮ੍ਰਿਗਛਲਾ ॥
 
-Shesh Naag Liptavat,Odat Mrigchhala॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਕਾਸ਼ੀ ਮੈਂ ਵਿਰਾਜੇ ਵਿਸ਼ਵਨਾਥ, ਨੰਦੀ ਬ੍ਰਹਮਚਾਰੀ।
 
-Kashi Me Viraje Vishwanath,Nandi Brahmchari।
+ਨਿਤ ਊਠ ਦਰਸ਼ਨ ਪਾਵਤ, ਮਹਿਮਾ ਅਤਿ ਭਾਰੀ ॥
 
-Nit Uth Darshan Paavat,Mahima Ati Bhaari॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।
 
-Om Jai Shiv Omkara॥
+ਤ੍ਰਿਗੁਣਸਵਾਮੀ ਜੀ ਕੀ ਆਰਤੀਜੋ ਕੋਈ ਨਰ ਦੇਵੇ।
 
-Trigunswami Ji Ki AartiJo Koi Nar Gave।
+ਕਹਤ ਸ਼ਿਵਾਨੰਦ ਸਵਾਮੀ, ਮਨਵੰਛਿਤ ਫਲ ਪਾਵੇ ॥
 
-Kahat Shivanand Swami,Manvanchhit Phal Pave॥
-
-Om Jai Shiv Omkara॥
+ਓਮ ਜੈ ਸ਼ਿਵ ਓਂਕਾਰਾ।

@@ -1,6 +1,6 @@
  ![The San Juan Mountains are beautiful!](lib/assets/images/artis/img.png "San Juan Mountains")
 
-#                        ॥ Aarti Shree Saraswatiji Ki ॥
+# ॥ Aarti Shree Saraswatiji Ki ॥
 
                          Jai Saraswati Mata,Maiya Jai Saraswati Mata।
 

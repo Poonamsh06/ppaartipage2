@@ -1,6 +1,6 @@
   ![The San Juan Mountains are beautiful!](lib/assets/images/artis/img.png "San Juan Mountains")
 
-#                  Aarti Kunj Bihari Ki
+#   Aarti Kunj Bihari Ki
                    Aarti Kunj Bihari Ki
                    Shri Girdhar Krishna Murari Ki
                    Gale Mein Baijanti Mala, Bajave Murali Madhur Bala।
